@@ -1,4 +1,8 @@
 # team-exercise-2019
 
 
-I am Sirawich! 
+I am so stupid!
+
+
+This is Disha!
+This is Sirawich!
